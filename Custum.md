@@ -1,1 +1,1 @@
-bit.ly/discord-themes
+https://bit.ly/discord-themes
